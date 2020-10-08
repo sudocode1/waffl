@@ -1,2 +1,2 @@
 # waffl
-WaffL - random something. not sure what this is
+absolute waffle. insanity. i have no idea how to describe this 
